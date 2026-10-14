@@ -1,1 +1,1 @@
-  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/9d7b054a4c496e9a5639c85ea6f3b0dc35fa9ecc/Untitled27_20261014144328.png?raw=true)
+  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/45862a47c4f076f3c7f53607cbc286b5bf249ee7/Untitled27_20261014144906.png?raw=true)
