@@ -8,6 +8,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 
   ︶  ྀི ◟  ͜ ◞    '   kill   '       my     self
+  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/bac89bd777a6295cfea0872398dae315b0f2181d/Untitled16_20261110030010.png)
      
                       
 </div>  
