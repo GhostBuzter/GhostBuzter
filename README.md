@@ -15,7 +15,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 </div>  
 <div align="right">  
     
- ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif)
+ ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) meow
 
 
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
