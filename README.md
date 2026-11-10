@@ -10,10 +10,9 @@ _ _                𓏵        ◟         I'm really friendly I promise        
   ︶  ྀི ◟  ͜ ◞    '   kill   '       my     self
   ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/bac89bd777a6295cfea0872398dae315b0f2181d/Untitled16_20261110030010.png)
      
- ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/blinkiesCafe-aJ.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/5.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/11.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/f2bd734a846734b9efe99d42665a47e771b090ed/ceb8e905.gif)
+ ![imge alt](https://github.com/GhostBuzter/GhostBuzter/blob/082221ac356ef51a01ae1c2860436a313ec61037/d7dddb80.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/5.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/11.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/f2bd734a846734b9efe99d42665a47e771b090ed/ceb8e905.gif)
                       
 </div>  
-
 <div align="right">  
     
  ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif)
