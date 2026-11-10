@@ -12,12 +12,12 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 </div>  
 <div align="right">  
     
-𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔 𓂃 ࣪˖ ִֶ♱ ྀིྀ⋆.ೃ࿔*:･ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) [![Hits](https://hits.sh/github.com/GhostBuzter.svg?style=plastic&label=Fatalities&color=bf1268&labelColor=ff6094)](https://hits.sh/github.com/GhostBuzter/)
+<span style="color: #E0115F">𝗜'𝗠</span> <span style="color: #FFC0CB">𝗟𝗜𝗞𝗘</span> <span style="color: #E0115F">𝗦✶𝗠𝗘</span> <span style="color: 	#FFC0CB">𝗞𝗜𝗡𝗗</span> <span style="color: #E0115F">𝐎𝗙</span> <span style="color:	#FFC0CB">𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔.ᐟ.</span> ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) [![Hits](https://hits.sh/github.com/GhostBuzter.svg?style=plastic&label=Fatalities&color=bf1268&labelColor=ff6094)](https://hits.sh/github.com/GhostBuzter/)
 
 
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
 
-!pls send help🩷
+!pls send help🩷𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔  .ᐟ
  
 
 $\color{#FFC0CB}{\text{im so tired mane}}$
