@@ -20,4 +20,4 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 !pls send help🩷
  
 
-$\color{red}{\text{Red text on GitHub}}$
+$\color{pink}{\text{im so tired mane}}$
