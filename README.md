@@ -17,7 +17,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
 
-!pls send help🩷𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔  .ᐟ
+!pls send help🩷
  
 
 $\color{#FFC0CB}{\text{im so tired mane}}$
