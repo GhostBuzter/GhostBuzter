@@ -12,19 +12,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 </div>  
 <div align="right">  
     
-⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝
-    /)  /)    
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ meow! .ᐟ.ᐟ ✩࿐࿔ 
-. .╭∪─∪────────── ✮⋆˙ˎˊ˗
-✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹
-. .┊ ◟❀ᮬ࿔ dont be afraid to int
-. .┊꩜｡𐙚 if you see me on ponytown!
-. .┊⋆˙ ☘︎ I don't bite anymore ok
-. .┊ᯓ⭑
-. .┊*: I LOOOOOOVE talking to people
-. .┊ ࣪˖ ִֶָpls chat my ear off 
-. .╰────────────  ˎˊ˗ 
-![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) [![Hits](https://hits.sh/github.com/GhostBuzter.svg?style=plastic&label=Fatalities&color=bf1268&labelColor=ff6094)](https://hits.sh/github.com/GhostBuzter/)
+𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔 𓂃 ࣪˖ ִֶ♱ ྀིྀ⋆.ೃ࿔*:･ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) [![Hits](https://hits.sh/github.com/GhostBuzter.svg?style=plastic&label=Fatalities&color=bf1268&labelColor=ff6094)](https://hits.sh/github.com/GhostBuzter/)
 
 
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
