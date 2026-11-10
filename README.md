@@ -2,7 +2,7 @@
 
 <div align="center">
     kill myself
-</div>
+</div> 
 
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
 
