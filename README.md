@@ -2,7 +2,7 @@
 
 <div align="center">
                   
-_ _      ︶     𓏼 ͜͜⠀ྀི         jojo or jo       ◟     𓊆  🥩 𓊇       𝜗℘      。
+_ _      ︶     𓏼 ͜͜⠀ྀི         jojo or jo       ◟     𓊆  🐩 𓊇       𝜗℘      。
 _ _     𓎟𓎡            she       ◞       her              ⠀ྀ
 _ _                𓏵        ◟         I'm really friendly I promise        my friends just piss me off🩷       ᛪ༙֪
 
