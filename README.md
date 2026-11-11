@@ -28,7 +28,8 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 
 
-<div align="right">  ᵥₐqᵤₑᵣₒ
+<div align="right">
+                    ᵥₐqᵤₑᵣₒ
            ʟᴀ ᴅɪɴᴀꜱᴛɪᴀ,ᴀɴᴅʀᴇꜱ ᴄᴀꜱᴛɪʟʟᴏ       ♥︎
   ⇄              ◁◁  𝚰𝚰   ▷▷           ↻
              00'41━━●━━─────4'05
