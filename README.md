@@ -16,7 +16,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 <div align="right">  
   
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/a3833437132bda866fbf16a8b2959aae012f7847/cici20.gif)
-  <span style="color:#E0115F">𝗜'𝗠</span> <span style="color:#FFC0CB">𝗟𝗜𝗞𝗘</span> <span style="color:#E0115F">𝗦✶𝗠𝗘</span> <span style="color:#FFC0CB">𝗞𝗜𝗡𝗗</span> <span style="color:#E0115F">𝐎𝗙</span> <span style="color:#FFC0CB">𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔.ᐟ.</span>
+  $\color{pink}{\text{𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔  .ᐟ}}$
  ![demo](https://github.com/GhostBuzter/GhostBuzter/blob/16e6b2c187d3495eea8cca9d1a0af2833301c43c/sakura-bouncing.gif) [![Hits](https://hits.sh/github.com/GhostBuzter.svg?style=plastic&label=Fatalities&color=bf1268&labelColor=ff6094)](https://hits.sh/github.com/GhostBuzter/)
 
 
