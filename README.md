@@ -31,7 +31,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 <div align="right">  ╭──────────.★..─╮
  HIIIIII,salutations my good people,I dont have anything to say other than I don't care what you do or who you are,just dont start drama,I promise you that's not what you want and be nice!! and yes you can int with me however you want!! im cool with anything yk
   
-  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/bac89bd777a6295cfea0872398dae315b0f2181d/Untitled16_20261110030010.png)
+  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/blinkiesCafe-aJ.gif)
 
 ╰─..★.──────────╯                            
 
