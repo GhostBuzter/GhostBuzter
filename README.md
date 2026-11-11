@@ -24,6 +24,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif)
 
  <div align="left">
- ![image alt](
+   
+ ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/dd4df5eb10b1853da17b2e90ee940fbd709e4b77/42184-tint-ff3f9f-44-difference.png)
 
 $\color{#FFC0CB}{\text{im so tired mane}}$
