@@ -2,12 +2,12 @@
 
 <div align="center">
                   
-_ _      ︶     𓏼 ͜͜⠀ྀི         Jojo or Jo  or whatever u wanna call me      ◟     𓊆  🐩 𓊇       𝜗℘      。
-_ _     𓎟𓎡            she       ◞       her              ⠀ྀ
+_ _      ︶     𓏼 ͜͜⠀ྀི       I'd do a flip off radioactive waste just to lick ghostrider◟     𓊆  🐩 𓊇       𝜗℘      。
+_ _     𓎟𓎡               ◞                ⠀ྀ
 _ _                𓏵        ◟         I'm really friendly I promise        my friends just piss me off🩷       ᛪ༙֪
 
 
-  ︶  ྀི ◟  ͜ ◞    '   kill   '       my     self
+  ︶  ྀི ◟  ͜ ◞    '   oh  '       mein     gott
   
   ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif)
   
