@@ -28,11 +28,9 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 
 
-<div align="right">
-           Vaquero 
-  La Dinastia,Andres Castillo   ♥︎
-  ⇄      ◁◁  𝚰𝚰   ▷▷         ↻
-     00'41━━●━━─────4'05
-</div>
+<div align="right">   ╭──────────.★..─╮
+       
+
+╰─..★.──────────╯                            
 
 $\color{#FFC0CB}{\text{im so tired mane}}$
