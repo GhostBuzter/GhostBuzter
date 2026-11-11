@@ -8,7 +8,7 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 
   ︶  ྀི ◟  ͜ ◞    '   kill   '       my     self
-  ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/bac89bd777a6295cfea0872398dae315b0f2181d/Untitled16_20261110030010.png) 
+  
   ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif)
   
   ![imge alt](https://github.com/GhostBuzter/GhostBuzter/blob/082221ac356ef51a01ae1c2860436a313ec61037/d7dddb80.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/5.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/11.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/f2bd734a846734b9efe99d42665a47e771b090ed/ceb8e905.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/fbd08cdbbad5e2ffba36f615f949eff6369a266f/ebd9a341.png) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/18.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/df6346e4261e1410e9eb1be54c5b99520ae30937/5.gif)                     
