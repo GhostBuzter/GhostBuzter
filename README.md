@@ -23,6 +23,6 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/ccae4d55d3e493175c7e4bbbed6c3562d47ca646/41716-tint-ff3f9f-44-difference.png)
 ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif) ![image alt](https://github.com/GhostBuzter/GhostBuzter/blob/41f2633d31b7d1119085d7b7516b18be09aa742d/skulldivider.gif)
 
-<img align="left" width="150" src="https://github.com/GhostBuzter/GhostBuzter/blob/dd4df5eb10b1853da17b2e90ee940fbd709e4b77/42184-tint-ff3f9f-44-difference.png">
+<img align="left" width="700" src="https://github.com/GhostBuzter/GhostBuzter/blob/dd4df5eb10b1853da17b2e90ee940fbd709e4b77/42184-tint-ff3f9f-44-difference.png">
 
 $\color{#FFC0CB}{\text{im so tired mane}}$
