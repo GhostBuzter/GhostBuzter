@@ -25,6 +25,9 @@ _ _                𓏵        ◟         I'm really friendly I promise        
 
 <img align="left" width="700" src="https://github.com/GhostBuzter/GhostBuzter/blob/dd4df5eb10b1853da17b2e90ee940fbd709e4b77/42184-tint-ff3f9f-44-difference.png"> 
 
+
+
+
 <div align="right">    𝙎𝙬𝙚𝙖𝙩𝙚𝙧 𝙒𝙚𝙖𝙩𝙝𝙚𝙧
                            ᵀʰᵉ ᴺᵉⁱᵍʰᵇᵒʳʰᵒᵒᵈ                                ♥︎
                           ⇄              ◁◁  𝚰𝚰   ▷▷               ↻
